@@ -1,6 +1,6 @@
 ## 🙋‍♀️ About Me
 🌱 한국외국어대학교 네덜란드어, AI융합전공(Software&AI) (2018.03 ~ 2023.02) <br />
-🌱 SSAFY(Samsung Software Academy For Youth) (2023.07 ~ 🏃) <br />
+🌱 SSAFY(Samsung Software Academy For Youth) (2023.07 ~ 2024.06) <br />
 🌱 멋쟁이사자처럼 대학 10기 운영진 (2022.01 ~ 2022.12) <br />
 <br />
 
